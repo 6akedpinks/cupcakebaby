@@ -1,2 +1,4 @@
-# cupcakebaby
-read it it's so long tho! Heh
+# cupcakebaby 
+. idk Don't click
+https://pin.it/64fvWKvvI
+https://pin.it/7y0HdP8yu
